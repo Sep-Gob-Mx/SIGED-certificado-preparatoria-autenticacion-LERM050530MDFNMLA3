@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LERM050530MDFNMLA3
+LERM050530MDFNMLA3
